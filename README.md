@@ -3,4 +3,4 @@
 
 Хобби: любит котиков
 
-
+Образование: University of Tyumen, Applied Informatics in Economics
